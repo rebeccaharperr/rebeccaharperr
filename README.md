@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rebeccaharperr
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning Loyola Law School
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me rebeccaharper93695@gmail.com
